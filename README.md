@@ -1,2 +1,0 @@
-# gizlilikk
-tesly
